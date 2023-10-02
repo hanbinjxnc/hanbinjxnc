@@ -14,7 +14,7 @@
 
 ### #博客园
 
-[赣州博讯科技工作室](https://www.cnblogs.com/hool/)
+[博讯](https://www.cnblogs.com/hool/)
 
 
 
